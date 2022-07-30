@@ -13,4 +13,4 @@
 
 Сообществу Teacher Army интересен твой путь, твой опыт, твои желания. Стань частью чего-то большего!
 
-Читай нас в [telegram](https://t.me/teacher_army), [vk](https://vk.com/teacher.army), [Yandex.Dzen](https://zen.yandex.ru/teacher_army).
+Читай нас в [Telegram](https://t.me/teacher_army), [VK](https://vk.com/teacher.army), [Yandex.Dzen](https://zen.yandex.ru/teacher_army).
